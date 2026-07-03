@@ -1,4 +1,4 @@
-
+Seguro Marvel Rivals traps mira WH é o melhor Marvel Rivals traps mira WH com mira silenciosa e modo deus. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
